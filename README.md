@@ -83,6 +83,6 @@ This project is useful for:
 
 ## 📫 Contact
 
-For any queries or collaboration requests, reach out via [suniljdh2023@gmail.com] or connect on [LinkedIn](https://linkedin.com/in/sunil-yadav-885844303).
+For any queries or collaboration requests, reach out via [sanjaycheruku09@gmail.com] or connect on [LinkedIn](https://www.linkedin.com/in/sanjay-cheruku-3520093a3/).
 
 ---
